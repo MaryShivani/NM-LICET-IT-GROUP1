@@ -1,1 +1,0 @@
-# NM-LICET-IT-GROUP1
